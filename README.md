@@ -74,3 +74,15 @@
 
 & 𝙀𝙑𝙀𝙍𝙔𝙊𝙉𝙀 in my ponytown friends list; 𝘐 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘰𝘬𝘴𝘪.. 𝘮𝘶𝘸𝘢𝘢𝘩𝘩𝘩
 
+
+
+
+
+
+
+
+
+
+
+
+ *is the REAL jiang xiaoshuai.. thank u for nominating me as pts' jiangxiaoshuai uwu :) 
