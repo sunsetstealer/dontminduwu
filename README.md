@@ -3,5 +3,4 @@
 
 
 
- *is the REAL jiang xiaoshuai.. thank u for nominating me as pts' jiangxiaoshuai uwu :) 
-
+*ⁱˢ ᵗʰᵉ ᴿᴱᴬᴸ ʲⁱᵃⁿᵍ ˣⁱᵃᵒˢʰᵘᵃⁱ.. ᵗʰᵃⁿᵏ ᵘ ᶠᵒʳ ⁿᵒᵐⁱⁿᵃᵗⁱⁿᵍ ᵐᵉ ᵃˢ ᵖᵗˢ' ʲⁱᵃⁿᵍˣⁱᵃᵒˢʰᵘᵃⁱ ᵘʷᵘ :⁾
