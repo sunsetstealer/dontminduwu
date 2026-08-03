@@ -1,6 +1,4 @@
-<img width="313" height="40" alt="Screenshot 2026-07-31 16 07 45" src="https://github.com/user-attachments/assets/4d6cd684-a8df-4d00-baa0-7c21c9398bf3" />
+<img width="406" height="396" alt="Screenshot 2026-08-03 22 10 51" src="https://github.com/user-attachments/assets/7f0b4266-0daa-4d67-a6c3-9339576cdc5d" />
+<img width="460" height="538" alt="Screenshot 2026-08-03 21 49 17" src="https://github.com/user-attachments/assets/04c231c8-7a93-4bf6-b94a-c41aeca501b5" />
 
-
-
-
-*ⁱˢ ᵗʰᵉ ᴿᴱᴬᴸ ʲⁱᵃⁿᵍ ˣⁱᵃᵒˢʰᵘᵃⁱ.. ᵗʰᵃⁿᵏ ᵘ ᶠᵒʳ ⁿᵒᵐⁱⁿᵃᵗⁱⁿᵍ ᵐᵉ ᵃˢ ᵖᵗˢ' ʲⁱᵃⁿᵍˣⁱᵃᵒˢʰᵘᵃⁱ ᵘʷᵘ :⁾
+we thank ashley and odussy for this 🫀
