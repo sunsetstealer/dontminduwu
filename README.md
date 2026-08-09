@@ -6,5 +6,4 @@ $${\color{#998d6e}✦ ⠀ ⠀ ⠀𝘞𝘦𝘭𝘤𝘰𝘮𝘦 \space \color{#b67
 
 
 
-<img width="345" height="190" alt="uwu" src="https://github.com/user-attachments/assets/78683920-962b-4eca-8b70-a6f2e8b46e58" />     ⠀ ⠀  ⠀$${\color{red}Welcome \space \color{lightblue}To \space \color{orange}Stackoverflow}$$
- 
+![Uploading uwu.jpg…]()
