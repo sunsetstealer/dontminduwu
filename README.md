@@ -6,7 +6,7 @@ $${\color{#998d6e}✦ ⠀ ⠀ ⠀𝘞𝘦𝘭𝘤𝘰𝘮𝘦 \space \color{#b67
 
 <img width="130" height="72" alt="uwu" src="https://github.com/user-attachments/assets/4f39ff40-7902-445a-bfa3-10bc4d569015" />
 
-$${\color{#989a82}✦ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀𝘞𝘦𝘭𝘤𝘰𝘮𝘦 \space \color{#819587}𝘵𝘰 \space \color{#b85f77}𝘮𝘺 \space \color{#63838d}𝘱𝘢𝘨𝘦.ᐟ}$$
+$${\color{#989a82}✦ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀𝘞𝘦𝘭𝘤𝘰𝘮𝘦 \space \color{#819587}𝘵𝘰 \space \color{#688b84}𝘮𝘺 \space \color{#63838d}𝘱𝘢𝘨𝘦.ᐟ}$$
 
 
 
