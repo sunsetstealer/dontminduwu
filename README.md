@@ -18,5 +18,5 @@ $${\color{#989a82} ⠀ ⠀⠀⠀ֺּׅ𓏽⑅ ⠀ 𝘥𝘰𝘯'𝘵⠀ 𝘣𝘦�
 
 
 
-  $${\color{#998d6e}ᶜʳᵉᵈˢ ᵗᵒ \space \color{#b67e6e}ⁱᵏᵒⁱˢᵗⁱᶜ & ᵒᵗʰᵉʳˢ
- ᶠᵒʳ \space \color{#b85f77}ᵐʸ \space \color{#955365}ᵖᶠᵖˢ & ᵈᵉˢⁱᵍⁿ}$$
+  $${\color{#998d6e}creds to \space \color{#b67e6e}ikoistic & others
+ for \space \color{#b85f77}my \space \color{#955365}pfp & design ^_^}$$
