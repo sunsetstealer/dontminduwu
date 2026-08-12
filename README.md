@@ -5,7 +5,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="130" height="72" alt="uwu" src="https://github.com/user-attachments/assets/4f39ff40-7902-445a-bfa3-10bc4d569015" />
 
 $${\color{#989a82}꒰ঌᰔᩚ໒꒱ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀hii uwuch ! \space \color{#819587}⠀ please call  \space \color{#688b84}⠀ me \space \color{#63838d}⠀ kieran.ᐟ}$$
-$${\color{#989a82}꒰ঌᰔᩚ໒꒱ ⠀ ⠀⠀⠀ ⠀ don't⠀ be⠀ afraid \space \color{#819587}⠀ to⠀ int !!  \space \color{#688b84}⠀ i⠀ swear⠀ i \space \color{#63838d}⠀ dont⠀ bite .ᐟ}$$
+$${\color{#989a82} ⠀ ⠀⠀⠀ ⠀ don't⠀ be⠀ afraid \space \color{#819587}⠀ to⠀ int !!  \space \color{#688b84}⠀ i⠀ swear⠀ i \space \color{#63838d}⠀ dont⠀ bite .ᐟ}$$
 
 
 
