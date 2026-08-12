@@ -4,8 +4,8 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="130" height="72" alt="uwu" src="https://github.com/user-attachments/assets/4f39ff40-7902-445a-bfa3-10bc4d569015" />
 
-$${\color{#989a82}꒰ঌᰔᩚ໒꒱ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀hii uwuch ! \space \color{#819587}⠀ please call  \space \color{#688b84}⠀ me \space \color{#63838d}⠀ kieran.ᐟ}$$
-$${\color{#989a82} ⠀ ⠀⠀⠀ ⠀ don't⠀ be⠀ afraid \space \color{#819587}⠀ to⠀ int !!  \space \color{#688b84}⠀ i⠀ swear⠀ i \space \color{#63838d}⠀ dont⠀ bite⠀ (ᵕ—ᴗ—)}$$
+$${\color{#989a82}꒰ঌᰔᩚ໒꒱ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀𝘩𝘪𝘪 ⠀ 𝘶𝘸𝘶𝘤𝘩 ! \space \color{#819587}⠀ 𝘱𝘭𝘦𝘢𝘴𝘦⠀ 𝘤𝘢𝘭𝘭  \space \color{#688b84}⠀ 𝘮𝘦 \space \color{#63838d}⠀ 𝘬𝘪𝘦𝘳𝘢𝘯}$$
+$${\color{#989a82} ⠀ ⠀⠀⠀ֺּׅ𓏽⑅ ⠀ don't⠀ be⠀ afraid \space \color{#819587}⠀ to⠀ int !!  \space \color{#688b84}⠀ i⠀ swear⠀ i \space \color{#63838d}⠀ dont⠀ bite⠀ (ᵕ—ᴗ—)}$$
 
 
 
