@@ -4,6 +4,7 @@
 
 $${\color{#998d6e}✦ ⠀ ⠀ ⠀𝘞𝘦𝘭𝘤𝘰𝘮𝘦 \space \color{#b67e6e}𝘵𝘰 \space \color{#b85f77}𝘮𝘺 \space \color{#955365}𝘱𝘢𝘨𝘦 .ᐟ}$$
 
-<img width="130" height="72" alt="uwu" src="https://github.com/user-attachments/assets/6ad13258-a4b8-4ad9-be4e-9b1ae364b8d6" /> $${\color{#998d6e}✦ ⠀ ⠀ ⠀𝘞𝘦𝘭𝘤𝘰𝘮𝘦 \space \color{#b67e6e}𝘵𝘰 \space \color{#b85f77}𝘮𝘺 \space \color{#955365}𝘱𝘢𝘨𝘦 .ᐟ}$$
+<img width="130" height="72" alt="uwu" src="https://github.com/user-attachments/assets/6ad13258-a4b8-4ad9-be4e-9b1ae364b8d6" /> 
+$${\color{#998d6e}✦ ⠀ ⠀ ⠀𝘞𝘦𝘭𝘤𝘰𝘮𝘦 \space \color{#b67e6e}𝘵𝘰 \space \color{#b85f77}𝘮𝘺 \space \color{#955365}𝘱𝘢𝘨𝘦 .ᐟ}$$
 
 
